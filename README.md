@@ -1,0 +1,2 @@
+# YuGiOh
+YuGiOh FAN SITE
